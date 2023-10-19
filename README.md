@@ -1,2 +1,1 @@
-- 👋 Hola yo soy @Arkshoo
-- 📫 como llegar a mi [...](https://discord.gg/HqvSEKVpzH)https://discord.gg/HqvSEKVpzH
+
